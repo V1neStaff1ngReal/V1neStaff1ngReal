@@ -9,3 +9,4 @@ EXTRA INFOSOS
 I support all ships!! (besides illegal ones er)
 Found usually in the roblox/phighting area!!
 ALSO FEEL FREE TO WHISPER TO ME!! I'll always respond :3 (most of the time!)
+BTWW, do NOT copy any of my skins. Light inspo is alr..
