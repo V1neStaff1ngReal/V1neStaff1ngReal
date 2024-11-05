@@ -1,5 +1,6 @@
 HABS A CARRD AND STRAWPAGER!!!
-Quick rundown/overview of who I am!!
+Not very quick rundown of who I am!!
+  
 I'm hyperfixed on phighting, specifally vinestaff cause she silli. [I main her] I love making frens even though I can be awkward tjdfkj, mainly on ponytown to chill and cud!
 C + H are ALWAYS alright!! ^^
 PLEASE CUD WITH ME, CUDCOMF 100%!!! (esp frens!!)
@@ -10,3 +11,5 @@ I support all ships!! (besides illegal ones er)
 Found usually in the roblox/phighting area!!
 ALSO FEEL FREE TO WHISPER TO ME!! I'll always respond :3 (most of the time!)
 BTWW, do NOT copy any of my skins. Light inspo is alr..
+
+Most active during the weekends! unless I got events to go to.. 
