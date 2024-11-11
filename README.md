@@ -15,6 +15,8 @@ EXTRA INFOSOS
 I support all ships!! (besides illegal ones er)
   
 ALSO FEEL FREE TO WHISPER TO ME!! I'll always respond :3 (most of the time! Lowkey forget a lot..)
+
+SENDING A FREN REQUEST IS ALR!!
   
 BTWW, do NOT copy any of my skins. Light inspo is alr..
 
