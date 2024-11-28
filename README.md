@@ -27,3 +27,5 @@ School days, not so much sigh..
  I also play ashes town! Not as much though..
 
 Dear all oomfs, i'm coming back for that ass if i ain't get that butt last year than this years getting smashed. I ain't pulling up in no granny costume that shit hard to run in, i'm pulling up in a tracksuit and we really gon get this fun in. /SILLY heh!
+
+I'M PUTTING ALL MY OOMFS IN FUCKING TIMEOUT!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
