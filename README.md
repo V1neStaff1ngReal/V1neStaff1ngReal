@@ -1,4 +1,5 @@
 HABS A CARRD AND STRAWPAGER!!!
+CREDS TO P3NC1L_X3 FOR PFP
 Not very quick rundown of who I am!!
   
 I'm hyperfixed on phighting, specifally vinestaff cause she silli. [I main her] I love making frens even though I can be awkward tjdfkj, mainly on ponytown to chill and cud! (And mess around with my friends)
