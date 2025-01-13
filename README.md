@@ -19,7 +19,7 @@ I support all ships!! Lowkey fw crossover ships holy (besides illegal ones er)
   
 ALSO FEEL FREE TO WHISPER TO ME!! I'll always respond :3 (most of the time! Lowkey forget a lot..)
 
-SENDING A FREN REQUEST IS ALR!!
+SENDING A FREN REQUEST IS ALR!! Not gonna friend you if your some like actual stranger that didn't even peep to me.. /lh
   
 BTWW, do NOT copy any of my skins. Light inspo is alr..
 
@@ -29,6 +29,6 @@ School days, not so much sigh..
 
  I also play ashes town! Not as much though..
 
-Dear all oomfs, i'm coming back for that ass if i ain't get that butt last year than this years getting smashed. I ain't pulling up in no granny costume that shit hard to run in, i'm pulling up in a tracksuit and we really gon get this fun in. /SILLY heh!
+how do i make a prettier github ://
 
 I'M PUTTING ALL MY OOMFS IN FUCKING TIMEOUT!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
