@@ -32,3 +32,7 @@ School days, not so much sigh..
 how do i make a prettier github ://
 
 I'M PUTTING ALL MY OOMFS IN FUCKING TIMEOUT!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+
+![image](https://github.com/user-attachments/assets/db197ae4-6a0b-42cb-8e45-95912a0fab62)
+this is a happy house
