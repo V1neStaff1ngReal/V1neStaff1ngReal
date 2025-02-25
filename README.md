@@ -1,4 +1,4 @@
-HABS A CARRD AND STRAWPAGER!!!
+HABS A CARRD AND STRAWPAGER!!! Please help, i'm ascending into that yellow twink from crk [pure vanilla cookie]
 
 CREDS TO P3NC1L_X3 FOR PFP
 
