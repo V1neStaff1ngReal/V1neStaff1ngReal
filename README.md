@@ -8,3 +8,5 @@
 I hate github too much to do my intro on here, i'm making a freaking rentry.
 -----------------------------------------------------------------------------
 https://rentry.co/Cherriliciouss https://qoh.straw.page
+
+PS!! Everything is better viewed on dark mode :3
