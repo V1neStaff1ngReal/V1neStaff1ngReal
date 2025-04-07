@@ -7,4 +7,4 @@
  
 I hate github too much to do my intro on here, i'm making a freaking rentry.
 -----------------------------------------------------------------------------
-(https://rentry.co/)
+https://rentry.co/Cherriliciouss
