@@ -8,6 +8,6 @@
  
 I hate github too much to do my intro on here, i'm making a freaking rentry.
 -----------------------------------------------------------------------------
-spits
+spits https://rentry.co/Vinestafflicious
 
 PS!! Everything would probably be better viewed on light mode[????]
