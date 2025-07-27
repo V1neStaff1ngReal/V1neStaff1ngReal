@@ -1,4 +1,4 @@
-[![image](https://github.com/user-attachments/assets/8ab83552-a87a-43fe-a5c8-335e41a9f144)](https://pbs.twimg.com/media/GvkMHQyWUAA5vRL?format=jpg&name=large)
+https://pbs.twimg.com/media/GvkMHQyWUAA5vRL?format=jpg&name=large
 
 							'TEAM COMEDY FOR THE WIN!'
 
