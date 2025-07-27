@@ -11,5 +11,6 @@ I hate github too much to do my intro on here, i'm making a freaking rentry.
 spits https://rentry.co/Vinestafflicious
 
 PS!! Everything would probably be better viewed on light mode[????]
+
 PFP creds: https:(https://x.com/xaliiox/media)
 Vr creds:(https://x.com/cloovrd/media)
