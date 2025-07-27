@@ -1,4 +1,5 @@
-insert vinestaff image
+<img width="1249" height="703" alt="image" src="https://github.com/user-attachments/assets/69774dad-4112-4483-89ed-76ce3c794b86" />
+
 
 							'TEAM COMEDY FOR THE WIN!'
 
