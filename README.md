@@ -1,4 +1,4 @@
-https://pbs.twimg.com/media/GvkMHQyWUAA5vRL?format=jpg&name=large
+insert vinestaff image
 
 							'TEAM COMEDY FOR THE WIN!'
 
