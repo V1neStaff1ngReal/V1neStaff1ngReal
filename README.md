@@ -12,5 +12,8 @@ spits https://rentry.co/Vinestafflicious
 
 PS!! Everything would probably be better viewed on light mode[????]
 
+HUGE DNI: GOONERS!!!! If you glorify or sexualize adult stuff on a game where KIDS can see it, DO NOT COME ANYWHERE NEAR ME. [Looking at you e-goons in the library and bakery..]
+If you are a minor under the age of simple understanding on why it's not okay [usually 13 and under..] and you give your avatar/skin bitties or explicitly expose your avatar in a sexualizing way, that's not normal... Gen seek help or keep it to yourself, ion want any other children on the game getting infected by your little disease.
+
 PFP creds: https:(https://x.com/xaliiox/media)
 Vr creds:(https://x.com/cloovrd/media)
