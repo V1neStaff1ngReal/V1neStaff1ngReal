@@ -14,7 +14,9 @@ PS!! Everything would probably be better viewed on light mode[????]
 
 HUGE DNI: GOONERS!!!! If you glorify or sexualize adult stuff on a game where KIDS can see it, DO NOT COME ANYWHERE NEAR ME. [Looking at you e-goons in the library and bakery..]
 If you are a minor under the age of simple understanding on why it's not okay [usually 13 and under..] and you give your avatar/skin bitties or explicitly expose your avatar in a sexualizing way, that's not normal... Gen seek help or keep it to yourself, ion want any other children on the game getting infected by your little horny disease.
+
 <img width="175" height="240" alt="image" src="https://github.com/user-attachments/assets/b86811f0-d8c0-4a81-a35c-a3dcb2520530" />
+
 why did you think leaving the editor with ts on is tuff 💔
 
 PFP creds: https:(https://x.com/xaliiox/media)
