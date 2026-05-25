@@ -15,7 +15,8 @@ PS!! Everything would probably be better viewed on light mode[????]
 HUGE DNI: GOONERS!!!! If you glorify or sexualize adult stuff on a game where KIDS can see it, DO NOT COME ANYWHERE NEAR ME. [Looking at you e-goons in the library and bakery..]
 If you are a minor under the age of simple understanding on why it's not okay [usually 13 and under..] and you give your avatar/skin bitties or explicitly expose your avatar in a sexualizing way, that's not normal... Gen seek help or keep it to yourself, ion want any other children on the game getting infected by your little horny disease. "It's just a game!" YEAH A GAME ABOUT HORSES SONNN. why are you sexualizing horses, please be smart. You got plenty of other games to be doing ts on like IMVU. At least go onto an 18+ server, NOT a safe server.
 
-<img width="175" height="240" alt="image" src="https://github.com/user-attachments/assets/b86811f0-d8c0-4a81-a35c-a3dcb2520530" /> <img width="241" height="227" alt="image" src="https://github.com/user-attachments/assets/8d54d522-c77e-4e1a-a5e4-2a2d30d2cee0" />
+<img width="175" height="240" alt="image" src="https://github.com/user-attachments/assets/b86811f0-d8c0-4a81-a35c-a3dcb2520530" /> <img width="241" height="227" alt="image" src="https://github.com/user-attachments/assets/8d54d522-c77e-4e1a-a5e4-2a2d30d2cee0" /> <img width="215" height="260" alt="image" src="https://github.com/user-attachments/assets/cbe25a54-ce3a-4bf1-8254-0be61ca1439e" />
+
 
 
 why did you think leaving the editor with ts on is tuff 💔
