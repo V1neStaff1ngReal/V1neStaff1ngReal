@@ -17,6 +17,7 @@ If you are a minor under the age of simple understanding on why it's not okay [u
 
 
 if you're that ugly ass squirm with the teagan that me and my friends encountered, shut up and cry in a hole  [🪱 ` 🍓 kissr] whispers: jump , WHO DOES BLUD THINK HE ISSS 🤣 MAD CAUSE WE'RE TOUCHING PIXELS AND NOT SAYING ANYTHINGGG BUYEEE
+Also hi sam, <{🍬••🩷‘,,Sam,,’🌸••🌺}> you're not funny! your death threats and sa joke against my friend and other people were not okay and you should genuinely seek help and educate yourself.
 
 
 <img width="175" height="240" alt="image" src="https://github.com/user-attachments/assets/b86811f0-d8c0-4a81-a35c-a3dcb2520530" /> <img width="241" height="227" alt="image" src="https://github.com/user-attachments/assets/8d54d522-c77e-4e1a-a5e4-2a2d30d2cee0" /> <img width="215" height="260" alt="image" src="https://github.com/user-attachments/assets/cbe25a54-ce3a-4bf1-8254-0be61ca1439e" />
